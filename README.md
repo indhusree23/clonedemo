@@ -1,2 +1,3 @@
 # BITCH LIST
-shrihitha 
+JAANUU
+PINKYY
